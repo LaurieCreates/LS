@@ -1,4 +1,4 @@
-# LS -THIS README IS A DRAFT- WILL BE UPDATED THROUGHOUT 2022
+# Dime Game -THIS README IS A DRAFT- WILL BE UPDATED THROUGHOUT 2022
 Laurie S. Creates
 App Ideas - Health Care - Dime Game - 
 I am not and do not claim to be a licensed clinician and recommend this game based soley upon personal experiences when it comes to the following:
