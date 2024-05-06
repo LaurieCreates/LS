@@ -2,7 +2,7 @@
 
 THIS DRAFT - WILL BE UPDATED THROUGHOUT 2022
 
-I am not and do not claim to be a licensed clinician and recommend this game based soley upon personal experiences when it comes to the following:
+I do not claim to be a licensed clinician and recommend this game based soley upon personal experiences when it comes to the following:
 1). Deciding whether or not to ask someone a question.
 2). Deciding a yes/no response to a question asked by someone else.
 
